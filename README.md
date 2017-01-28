@@ -1,3 +1,2 @@
-## Welcome to Haha Academy
+## Coming soon to a website near you
 
-_Coming soon to a website near you..._
